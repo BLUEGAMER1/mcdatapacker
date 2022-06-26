@@ -8,3 +8,8 @@ Make any datapacks for minecraft you want with mcfunction.
 
 ### Progress
 I even **DID NOT STARTED CODING IT!!!**
+
+### Reach me
+Discord: __Coming Soon...__
+E-mail: elshannazeri9@gmail.com
+
